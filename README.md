@@ -2,3 +2,5 @@
 hi my name is camren i am 17 years old 
 i got to newhaven highschool
 my favorite hobbies are playing videos,watching tv and learning how to code
+https://images.app.goo.gl/mg16DGgfCTQs17Zm7
+
